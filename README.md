@@ -1,4 +1,8 @@
-### Hi there 👋
+### i'm the one who in the northest of Thailand (that's right Chiang Rai)
+kinda Full-Stack Developer while i'm working as IT Department...
+
+if you interest my profile fell free to ping me at anytime.
+at [here](https://www.facebook.com/kana2011th) or [here](mailto:kana2011th@gmail.com)
 
 <!--
 **kana2011th/kana2011th** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
