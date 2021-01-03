@@ -1,7 +1,7 @@
 ### i'm the one who in the northest of Thailand (that's right Chiang Rai)
 kinda Full-Stack Developer while i'm working as IT Department...
 
-if you interest my profile fell free to ping me at anytime.
+if you interest my profile feel free to ping me at anytime.
 at [here](https://www.facebook.com/kana2011th) or [here](mailto:kana2011th@gmail.com)
 
 <!--
